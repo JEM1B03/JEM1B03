@@ -6,4 +6,4 @@ Estudante do Alura
 
 Estudante da linguagem Javascript
 
-![](https://media1.tenor.com/m/6oGZiulbQjIAAAAd/calleri-jocalleri.gif)
+![](https://media1.tenor.com/m/qi8UYyqCuucAAAAd/robert-arboleda-spfc.gif)
